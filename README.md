@@ -1,1 +1,1 @@
-Clare Fortier cfortier
+Clare Fortier, cfortier 
